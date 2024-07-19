@@ -1,0 +1,1 @@
+# Adobe-InCopy-CC-19.5-Crack
